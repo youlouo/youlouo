@@ -47,9 +47,9 @@
 ## 📫 Связаться со мной
 
 - **Telegram:** [@Le8ikTyson](https://t.me/Le8ikTyson)
-- **Email:** bazinlev8@gmail.com@gmail.com
+- **Email:** bazinlev8@gmail.com
 - **GitHub:** [github.com/youlouo](https://github.com/youlouo)
 
 ---
 
-⭐ *Если тебе стало интересно — напиши в Telegram, всегда открыт для общения и предложений!*
+⭐ *Если стало интересно — напиши в Telegram, всегда открыт для общения и предложений!*
